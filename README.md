@@ -22,3 +22,7 @@
 [http://quotesondesign.com](http://quotesondesign.com "API Homepage")
 ###### 4.) Causes of Depression . 
 ###### 5.) Emergency Feature .
+
+![alt-text](http://i.imgur.com/enEMF4I.jpg)
+
+![alt-text](http://i.imgur.com/2OHASHC.jpg)
